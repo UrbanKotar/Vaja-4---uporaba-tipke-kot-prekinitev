@@ -1,0 +1,1 @@
+# Vaja-4---uporaba-tipke-kot-prekinitev
